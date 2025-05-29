@@ -6,8 +6,6 @@
 
 You can contact me at the email: nivoaj@gmail.com
 
-@nivoaj on: Instagram, X and TikTok
-
 ## 𝖇𝖊𝖒-𝖛𝖎𝖓𝖉𝖔 𝖆𝖔 𝖒𝖊𝖚 𝖕𝖊𝖗𝖋𝖎𝖑
 
 - Brasileiro
@@ -15,5 +13,3 @@ You can contact me at the email: nivoaj@gmail.com
 - 16y
 
 Você pode entrar em contato comigo pelo email: nivoaj@gmail.com
-
-@nivoaj no Instagram, X e TikTok
