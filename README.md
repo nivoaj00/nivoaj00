@@ -2,7 +2,7 @@
 
 - 16y
 
-1º ano de Eletroeletrônica integrado ao Ensino Médio - **COTUCA**
+- 1º ano de Eletroeletrônica integrado ao Ensino Médio - **COTUCA**
 
 
 Você pode entrar em contato comigo pelo email: nivoaj@gmail.com
